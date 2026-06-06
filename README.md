@@ -6,14 +6,13 @@
 
 
 <p align="center"> quarimㅤㅤgrayㅤdoveㅤㅤㅤpea
-
+</p>
 <p align="center"> don't c+h for strangersㅤㅤㅤcrowd discomfort
-
-<p align="center"> ㅤfrequently inactiveㅤinteract with caution 
-
-<p align="center"> ㅤㅤ<a href="https://byakuya.atabook.org/">ata</a>ㅤㅤw2iㅤㅤㅤbfyiㅤㅤ <a href="https://rentry.co/1bumiod9">rentry</a>
-ㅤㅤㅤㅤ
-ㅤㅤㅤㅤ
+</p>
+<p align="center"> ㅤfrequently inactiveㅤinteract with caution
+</p>
+<p align="center"> <a href="https://byakuya.atabook.org/">ata</a>ㅤㅤw2iㅤㅤbfyiㅤ <a href="https://rentry.co/1bumiod9">rentry</a>
+</p>
 ㅤㅤㅤ
 ㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤ
